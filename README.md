@@ -1,4 +1,4 @@
-# Hi there, I'm Kushagra - aka [CoderGhost37]👋 
+# Hi there, I'm Justin Huy👋 
 
 <h3>I am a</h3>
 
